@@ -1,2 +1,0 @@
-# Diamond-Market
-Market Research
